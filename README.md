@@ -1,1 +1,1 @@
-# preguiça,mais cntinuo linda
+# preguiça,mais continuo linda
